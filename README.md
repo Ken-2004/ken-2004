@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Ken-2004
+- 👀 I’m interested in Games, codes
+- 🌱 I’m currently learning c
+- 📫 How to reach me, well you cant because i am still learning 
